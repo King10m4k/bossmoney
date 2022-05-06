@@ -1,2 +1,1 @@
-# bossmoney
-Im new
+# bossmoneyim in for that money
